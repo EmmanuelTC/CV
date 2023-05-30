@@ -1,2 +1,2 @@
 # CV
-Vinculo de Curriculum de enlace viejo
+Vinculo de Curriculum Viejo a pagina nueva
