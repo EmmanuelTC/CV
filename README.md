@@ -1,2 +1,2 @@
 # CV
-Vinculo de Curriculum Viejo a pagina nueva
+Vinculo de Curriculum Viejo a pagina nueva https://emmanueltc.com
